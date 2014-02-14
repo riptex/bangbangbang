@@ -1,0 +1,4 @@
+bangbangbang
+============
+
+BBB Alt Coin
